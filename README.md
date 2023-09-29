@@ -1,5 +1,5 @@
 ![image](https://github.com/ILOVETHESILENCE/ILOVETHESILENCE/assets/130368751/59a61008-02a3-4d1f-8aef-59e14ec58faf)
-            ft  [@celesgiri](https://github.com/celesgiri)
+            ft  [@celesgiri](https://github.com/celesgiri) :3
             ![image](https://github.com/ILOVETHESILENCE/ILOVETHESILENCE/assets/130368751/472d9907-3107-4b61-8e8c-1b0b6215193e)
 
 
